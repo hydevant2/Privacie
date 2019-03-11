@@ -1,2 +1,0 @@
-# Privacie
-cie cie privasi
